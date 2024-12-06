@@ -1,1 +1,7 @@
-# N-n-T-ng-t-L-ch-Cho-Ph-ng-Kh-m-a-Khoa
+Trần Quốc Khánh
+Nguyễn Hoàng Chương
+Nguyễn Tấn Tài
+Nguyễn Tuấn Du
+Lê Nguyễn Ngọc Minh
+Bùi Mai Khoa
+Đặng Nguyễn Mạnh Huỳnh
