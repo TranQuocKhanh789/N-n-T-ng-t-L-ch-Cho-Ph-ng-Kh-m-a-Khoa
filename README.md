@@ -7,4 +7,4 @@ Bùi Mai Khoa
 Đặng Nguyễn Mạnh Huỳnh
 alooo vô đii ae
 xin chào tui là tài đụt
-mọi người chia nhau ra làm nha
+mọi người chia nhau ra làm nha.
